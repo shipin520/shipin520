@@ -10,3 +10,4 @@ http://shipin520.gta.team
 
 http://fuli888.blog.fc2blog.us
 
+如果打不开请挂代理！
