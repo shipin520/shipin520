@@ -4,7 +4,9 @@
 
 更多资源集合：
 
-http://shipin520.cloud
+http://www.shipin520.cloud
+
+https://www.shipin520.rode
 
 
 如果打不开请挂代理！
