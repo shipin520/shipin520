@@ -6,7 +6,8 @@
 
 http://www.shipin520.cloud
 
-https://www.shipin520.rode
+
+https://www.shipin520.rodeo
 
 
 如果打不开请挂代理！
