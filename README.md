@@ -4,7 +4,8 @@
 
 更多资源集合：
 
-http://www.shipin520.cloud
+
+https://cjg01.shipin520.rodeo
 
 
 https://www.shipin520.rodeo
