@@ -7,8 +7,9 @@
 
 https://cjg01.shipin520.rodeo
 
+https://cangjingge.do.am/
 
-https://www.shipin520.rodeo
+https://cangjingge.blog.2nt.com/
 
 
 如果打不开请挂代理！
